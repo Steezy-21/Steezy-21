@@ -1,3 +1,5 @@
-### Hello! I am Kaustubh -aka [Steezy]👋
+## Hello! I am Kaustubh -aka [Steezy]👋
 
-## I am a Student, Newbie!
+### I am a Student, Newbie!
+
+
