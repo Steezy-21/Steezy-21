@@ -1,4 +1,3 @@
-### Hello! I am Kaustubh-aka Steezy
+### Hello! I am Kaustubh -aka [Steezy]👋
 
-
-Welcome to my profile.
+##I am a Student, Newbie!
